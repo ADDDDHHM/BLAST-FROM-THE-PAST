@@ -1,0 +1,21 @@
+</head>
+<body>
+<h1>THE 70S&80S</h1>
+<P>As a teen who’s pretty much devoted my life to the 80s, I’d like to answer this oneFor one, the music was way better. People had to have talent, and music and songs actually had a melody instead of the awful trap-rap music that’s popular today. Genres like hair metal and new wave are some of my favorites, but I love pop music from the time too. Also, the fashion styles were more outrageous, like the big hair and bright colors. In a society where wearing sweatpants and boring neutral colors are popular, I’d rather be able to express myself creatively by teasing my hair up or wearing a color block 80s sweater(or even a jacket with shoulder pads LOL.) If given the chance I’d like to see what it was like to live then, without the internet or phones and actually connect with people and have conversations with them. True, I don’t fully understand the era but I definitely want to be able to help keep it alive in a generation that I’m just not passionate about.</P>
+<p> In this website we are talking about 70s and 80s .</p>
+<p>Evoultion of Transportion: </p>
+<p>The 1970s had wonderful cars, boats, airplanes, trains and many more.</p>
+<p>The 1980s most of them were made by cars</p>
+<hr>
+<p> Fashion Page:</p>
+<p>In The 70s and 80s they had alot of iconic fashion designs like bell-bottoms , Checkerd outerwear and Crop tops for the ladies .For the men:Platform shoes , glittery fabrics and bold makeup.</p>
+<hr>
+<p>Life style :</p>
+<p> They wanted grow their hair long, have sex with whomever they wanted or do drugs to help them feel better</p>
+<hr>
+<p>Historical Events and traditions</p>
+<p> President Richard Nixon resigned amid the Watergate scandal,the 70s was liberal with the rise of LGBT, feminism, civil rights movement while the 80s was conservative with the rise of Reagan and the religious right</p>
+<hr>
+<p> MADE BY: ADAM HAZEM .K</P>
+</body>
+</html>
